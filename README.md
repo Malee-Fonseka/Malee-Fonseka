@@ -1,1 +1,1 @@
-> consistency and hard work can achieve anything (but I'm too lazy for either).
+> consistency and hard work can achieve anything yet I'm too lazy for either.
